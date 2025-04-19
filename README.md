@@ -1,9 +1,15 @@
-# · · ─── ·𖥸· ─── · ·
+# MORE INFO!! 
+![image alt](https://github.com/fascinatedberry/fascinatedberry/blob/c861a66175f506feb62c2bfbcfd766af1f3558bd/Untitled88_20250419082826.png) 
 
-★   ︵   @  AZURETIME ENJOYER
-Learning how 2 shade.. ⟢   🦴
-౨    DW + 4SAKEN  !
+## yes I'm a fruitcake shipper, IF YOU DON'T LIKE IT, YOU HAVE THE OPTION TO HIDE ME!! 
+- no I'm not like those fruitcake stereotypes. 
 
-‎ 🔪 ｡‎ °‎ ‧ ‎ ‎ ‎ ‎ ‎README. WIP
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ 𓂃 ‎ ‎ ‎ ‎★‎ ‎ ‎ ‎ fllw + fllwback
-·。`      ‎‎ ‎‎ ‎‎ ‎‎ml A.ᐟ <3
+︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶
+
+
+♩      ₊ 　　   𓎟𓎟 　　  　　  sprout    🌱    kinne  
+      ⟢ 　　  ARO**ACE**  +   **cupio**romantic?...⠀   ⠀˳ᴗ ᴗ)
+ ✿  　　  　　    INFP　　  . 　　  childish.. 
+
+
+(◦ ˘ᴗ˘)  ⌑  ┈  ◦ 🍓  ﹕   MYLOVEE ﹕ ALIY MWAMWAA
