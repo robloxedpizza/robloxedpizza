@@ -13,3 +13,6 @@
 
 
 (◦ ˘ᴗ˘)  ⌑  ┈  ◦ 🍓  ﹕   MYLOVEE ﹕ ALIY MWAMWAA
+## none of these arts are mine. 
+
+![image alt](https://github.com/fascinatedberry/fascinatedberry/blob/7be0ef435757453fe511e24ef7ae434be9d804af/Untitled88_20250419083101.png) 
