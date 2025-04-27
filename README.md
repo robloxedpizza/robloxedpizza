@@ -7,8 +7,8 @@
 ︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶
 
 
-♩      ₊ 　　   𓎟𓎟 　　  　　  sprout    🌱    kinne  
-      ⟢ 　　  ARO**ACE**  +   **cupio**romantic?...⠀   ⠀˳ᴗ ᴗ)
+♩      ₊ 　　   𓎟𓎟 　　  　　  sprout    🌱    kinnie  
+      ⟢ 　　  ARO**ACE**  +   **!!MINOR!!**...⠀   ⠀˳ᴗ ᴗ)
  ✿  　　  　　    INFP　　  . 　　  childish.. 
 
 
