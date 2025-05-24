@@ -1,18 +1,17 @@
 # MORE INFO!! 
-![image alt](https://github.com/fascinatedberry/fascinatedberry/blob/c861a66175f506feb62c2bfbcfd766af1f3558bd/Untitled88_20250419082826.png) 
+![image alt](https://github.com/fascinatedberry/fascinatedberry/blob/5cfa67a5f1b00e770fb171e607eb00e3ae62fdcf/Untitled88_20250524201606.png) 
 
-## yes I'm a fruitcake shipper, IF YOU DON'T LIKE IT, YOU HAVE THE OPTION TO HIDE ME!! 
-- no I'm not like those fruitcake stereotypes. 
+## me n my husband ^^^
 
 ︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶
 
 
-♩      ₊ 　　   𓎟𓎟 　　  　　  sprout    🌱    kinnie  
-      ⟢ 　　  ARO**ACE**  +   **!!MINOR!!**...⠀   ⠀˳ᴗ ᴗ)
+♩      ₊ 　　   𓎟𓎟 　　  　　  bluudud    🐬    kinnie  
+      ⟢ 　　  ACE**PAN**  +   **!!MINOR!!**...⠀   ⠀˳ᴗ ᴗ)
  ✿  　　  　　    INFP　　  . 　　  childish.. 
 
 
-(◦ ˘ᴗ˘)  ⌑  ┈  ◦ 🍓  ﹕   MYLOVEE ﹕ ALIY MWAMWAA
+(◦ ˘ᴗ˘)  ⌑  ┈  ◦ 🎭  ﹕   MYLOVEE ﹕ NOLI/HEROO MWAMWAA
 ## none of these arts are mine. 
 
-![image alt](https://github.com/fascinatedberry/fascinatedberry/blob/7be0ef435757453fe511e24ef7ae434be9d804af/Untitled88_20250419083101.png) 
+![image alt](https://github.com/fascinatedberry/fascinatedberry/blob/4d43548bddb81772e46fedd45b771aa80dee0dbb/Untitled88_20250524201643.png) 
