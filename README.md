@@ -1,17 +1,19 @@
 # MORE INFO!! 
-![image alt](https://github.com/fascinatedberry/fascinatedberry/blob/5cfa67a5f1b00e770fb171e607eb00e3ae62fdcf/Untitled88_20250524201606.png) 
+![image alt](https://github.com/loudshqrk/fascinatedberry/blob/e52ead0cd0553125dc3c862c3efd250266a1a83b/20250606_003253.jpg) 
 
-## me n my husband ^^^
+︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶ 
+
+𓏵 ⋮ Things Are Getting A Whole Lot Bluer! ₊ ⊹
+ 
+　　　　　⊹　🫧   　　.　 𓏲𝄢
+  　　　　　 ◠◠　clove my husbandd 　
+⠀⠀⠀⠀　　⠀𓈒⠀⠀⠀⁺⠀𝜗　  𝜚⠀
+
+
 
 ︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶
 
+      ﹙💤﹚ hold me ⠀︵⠀⠀⊹⠀
 
-♩      ₊ 　　   𓎟𓎟 　　  　　  bluudud    🐬    kinnie  
-      ⟢ 　　  ACE**PAN**  +   **!!MINOR!!**...⠀   ⠀˳ᴗ ᴗ)
- ✿  　　  　　    INFP　　  . 　　  childish.. 
+        ﾟ ✦  ꕀ   console me ⠀꒰๑ ´` ๑꒱⠀ 𓂂  ⠀
 
-
-(◦ ˘ᴗ˘)  ⌑  ┈  ◦ 🎭  ﹕   MYLOVEE ﹕ NOLI/HEROO MWAMWAA
-## none of these arts are mine. 
-
-![image alt](https://github.com/fascinatedberry/fascinatedberry/blob/4d43548bddb81772e46fedd45b771aa80dee0dbb/Untitled88_20250524201643.png) 
