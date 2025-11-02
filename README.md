@@ -1,11 +1,20 @@
 # MORE INFO!! 
-![image alt](https://github.com/robloxedpizza/robloxedpizza/blob/43dfd6cf50a2780dbe91e326ef2f6c60da942477/ezgif.com-animated-gif-maker.gif) 
 
-　        ゛ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ౨ৎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ₊ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 𓈒 ◌ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ˚
-
-𓎟𓎟ㅤ ✦ ㅤ pizza/riaaㅤ ◞ ◟ㅤ ?! 
-
-ㅤ ㅤ pizza.riaa on dcㅤ ;ㅤ 'ㅤ Mafioso's right handㅤ '
+##  ︶︶﹒I *was* made like ***this***﹒.. 
 
 
-         ｡ ◞◟ )⠀⠀⠀⠀WORK⠀⠀IN⠀⠀PROGRESS
+![image alt](https://github.com/robloxedpizza/robloxedpizza/blob/98bfa27a8564f6cac6a9c42e2a7011242f47c35b/Untitled161_20251102101340.png)
+
+# ( ᴗ ᴗ ｡　𓈒 𓏲 　art by me　.
+
+
+⁀　　➷　　　 ͜　　　　₎
+
+   ! ˳　　codren         ᵒᵘ     wemi 
+
+   lithro　　　┉　　𓂂    co    /    tophatsword
+
+   ₍　　 ͜♡ 　　　　　⁀
+
+
+       .   Reconsider Your Actions Now    . 
